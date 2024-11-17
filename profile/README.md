@@ -1,1 +1,1 @@
-# Association of Computer Machinery affiliated SWPU
+# Association of Computing Machinery affiliated SWPU
